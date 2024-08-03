@@ -2,7 +2,7 @@
 - 👀 I’m interested in web development
 - 🌱 I’m currently learning algorithms
 - 💞️ I’m looking to collaborate on any software projects as long as I can help
-- 📫 How to reach me-u can text me
+- 📫 How to reach me- insta id@yepthomi iuka
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: my actual dream was to be an ips officer
 
